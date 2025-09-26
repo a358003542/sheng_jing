@@ -21,7 +21,9 @@
 ## 翻译词汇规范
 - spirit 灵
 - soul 灵魂
-
+- Almighty 全能者
+- God 一般翻译为上帝 偶尔会翻译为神
+- the Holy One 圣者
 
 ## 旧约圣经约伯记
 
