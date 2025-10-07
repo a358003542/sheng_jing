@@ -24,6 +24,8 @@
 - Almighty 全能者
 - God 一般翻译为上帝 偶尔会翻译为神
 - the Holy One 圣者
+- iniquity 罪孽
+
 
 ## 旧约圣经约伯记
 
