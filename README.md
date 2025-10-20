@@ -24,6 +24,8 @@
 - the Holy One 圣者
 - iniquity 罪孽
 - transgression 罪过
+- sorrow 悲痛
+- grieved 悲伤
 
 ## 旧约圣经约伯记
 
