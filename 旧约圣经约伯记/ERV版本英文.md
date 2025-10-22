@@ -446,3 +446,92 @@ Let him take his rod away from me, and let not his terror make me afraid:
 Then would I speak, and not fear him; for I am not so in myself.
 
 ### Chapter 10
+My soul is weary of my life; I will give free course to my complaint; I will speak in the bitterness of my soul.
+
+I will say unto God, Do not condemn me; shew me wherefore thou contendest with me.
+
+Is it good unto thee that thou shouldest oppress, that thou shouldest despise the work of thine hands, and shine upon the counsel of the wicked?
+
+Hast thou eyes of flesh, or seest thou as man seeth?
+
+Are thy days as the days of man, or thy years as man's days,
+
+That thou inquirest after mine iniquity, and searchest after my sin,
+
+Although thou knowest that I am not wicked; and there is none that can deliver out of thine hand?
+
+Thine hands have framed me and fashioned me together round about; yet thou dost destroy me.
+
+Remember, I beseech thee, that thou hast fashioned me as clay; and wilt thou bring me into dust again?
+
+Hast thou not poured me out as milk, and curdled me like cheese?
+
+Thou hast clothed me with skin and flesh, and knit me together with bones and sinews.
+
+Thou hast granted me life and favour, and thy visitation hath preserved my spirit.
+
+Yet these things thou didst hide in thine heart; I know that this is with thee:
+
+If I sin, then thou markest me, and thou wilt not acquit me from mine iniquity.
+
+If I be wicked, woe unto me; and if I be righteous, yet shall I not lift up my head; being filled with ignominy and looking upon mine affliction.
+
+And if my head exalt itself, thou huntest me as a lion: and again thou shewest thyself marvelous upon me.
+
+Thou renewest thy witnesses against me, and increasest thine indignation upon me; changes and warfare are with me.
+
+Wherefore then hast thou brought me forth out of the womb? I had given up the ghost, and no eye had seen me.
+
+I should have been as though I had not been; I should have been carried from the womb to the grave.
+
+Are not my days few? cease then, and let me alone, that I may take comfort a little,
+
+Before I go whence I shall not return, even to the land of darkness and of the shadow of death;
+
+A land of thick darkness, as darkness itself; a land of the shadow of death, without any order, and where the light is as darkness.
+
+
+### Chapter 11
+Then answered Zophar the Naamathite, and said,
+
+Should not the multitude of words be answered? and should a man full of talk be justified?
+
+Should thy boastings make men hold their peace? and when thou mockest, shall no man make thee ashamed?
+
+For thou sayest, My doctrine is pure, and I am clean in thine eyes.
+
+But Oh that God would speak, and open his lips against thee;
+
+And that he would shew thee the secrets of wisdom, that iris manifold in effectual working! Know therefore that God exacteth of thee less than thine iniquity deserveth.
+
+Canst thou by searching find out God? canst thou find out the Almighty unto perfection?
+
+It is high as heaven; what canst thou do? deeper than Sheol; what canst thou know?
+
+The measure thereof is longer than the earth, and broader than the sea.
+
+If he pass through, and shut up, and call unto judgment, then who can hinder him?
+
+For he knoweth vain men: he seeth iniquity also, even though he consider it not.
+
+But vain man is void of understanding, yea, man is born as a wild ass's colt.
+
+If thou set thine heart aright, and stretch out thine hands toward him;
+
+If iniquity be in thine hand, put it far away, and let not unrighteousness dwell in thy tents;
+
+Surely then shalt thou lift up thy face without spot; yea, thou shalt be stedfast, and shalt not fear:
+
+For thou shalt forget thy misery; thou shalt remember it as waters that are passed away:
+
+And thy life shall be clearer than the noonday; though there be darkness, it shall be as the morning.
+
+And thou shalt be secure, because there is hope; yea, thou shalt search about thee, and shalt take thy rest in safety.
+
+Also thou shalt lie down, and none shall make thee afraid; yea, many shall make suit unto thee.
+
+But the eyes of the wicked shall fail, and they shall have no way to flee, and their hope shall be the giving up of the ghost.
+
+
+### Chapter 12
+Then Job answered and said,
