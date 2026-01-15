@@ -502,7 +502,7 @@ For thou sayest, My doctrine is pure, and I am clean in thine eyes.
 
 But Oh that God would speak, and open his lips against thee;
 
-And that he would shew thee the secrets of wisdom, that iris manifold in effectual working! Know therefore that God exacteth of thee less than thine iniquity deserveth.
+And that he would shew thee the secrets of wisdom, that is manifold in effectual working! Know therefore that God exacteth of thee less than thine iniquity deserveth.
 
 Canst thou by searching find out God? canst thou find out the Almighty unto perfection?
 
