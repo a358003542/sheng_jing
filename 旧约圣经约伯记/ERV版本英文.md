@@ -829,9 +829,9 @@ Yet shall the righteous hold on his way, and he that hath clean hands shall wax 
 
 But return ye, all of you, and come now: and I shall not find a wise man among you.
 
-My days are past, my purposes are broken off, even the droughts of my heart.
+My days are past, my purposes are broken off, even the thoughts of my heart.
 
-They change the night into a day: the fight, say they, is near unto the darkness.
+They change the night into a day: the light, say they, is near unto the darkness.
 
 If I look for Sheol as mine house; if I have spread my couch in the darkness;
 
