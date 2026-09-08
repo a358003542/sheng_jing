@@ -1,3 +1,11 @@
+# 说明
+本文件夹下放着ERV原文的影印版。
+
+其他参考资料：
+
+- [希伯来原文词语参考](https://mdwjdt.github.io/Original%20Bible/index.htm)
+- [希伯来词语参考](https://biblehub.com/hebrew)
+
 ## ERV版本英文更改说明
 
 ERV版本来自 https://cnbible.com/ ，和网络上的大部分版本一样，基本一致也一般没什么问题的。下面就极个别的更改做出说明，这些更改最终以ERV 1885 印刷体扫描版pdf为准。
